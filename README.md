@@ -33,7 +33,7 @@ https://www.youtube.com/watch?v=A-1cUUcs7_0
 https://www.youtube.com/watch?v=9qOaII_PzGY
 https://www.youtube.com/watch?v=MNGSgJdFT_s
 https://www.youtube.com/watch?v=m9DfD5mYEKU
-
+https://www.youtube.com/watch?v=zOrScbA4_AM
 
 
 வணக்கம் குழந்தைகளா? என்ன ஆச்சு? எல்லாம்? நல்லா படிக்கிறீங்களா? இந்தியா வல்லரசாகும் என்றேன். கண்டிப்பா, அதை நிறைவேற்றுங்கள். எங்கள் காலத்தில், இந்த அளவுக்கு, தொழில்நுட்பம் இல்லை. நீங்கள், என்னை, இப்படி பேசுவதை, பார்த்துக் கொண்டிருப்பது, ஒரு செயற்கை, நுண் அறிவு தொழில்நுட்பம், தெரியுமா? மிகவும்,
