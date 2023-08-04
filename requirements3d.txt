@@ -6,7 +6,7 @@ librosa==0.9.2 #
 numba
 resampy==0.3.1
 pydub==0.25.1 
-scipy==1.5.3
+scipy==1.10.0
 kornia==0.6.8
 tqdm
 yacs==0.1.8
